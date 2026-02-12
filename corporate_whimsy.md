@@ -34,6 +34,10 @@ Concepts to play with
 - Why this book changed my life lightning talk
 - Smelly erasers, fun pens, etc.
 
+### Kaffeeklatsch
+- Bring whatever you are working on, chill hang out but in new space
+- Coffee and other fun beverages available
+- Per Google: a casual, social gathering for coffee, conversation, and often light snacks like cookies. Originating from German tradition, it literally translates to "coffee gossip" or "coffee chatter". Historically, it was an afternoon social activity for women, particularly in the 18th-19th centuries and the 1950s, to discuss daily life and news. 
 
 ### Async
 - Desktop wallpapers, seasonal collections
