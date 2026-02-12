@@ -17,6 +17,10 @@ Concepts to play with
 
 ### Primp my work bag/space/computer
 - swap art, desk ornaments, stickers, post-its
+- Shrinkidinks charms, magnets
+- fabric to reupholder desk deviders, removable wallpaper
+- empower people to simply and impactfully make desk comfy and inspiring
+- Very AD space savers, could even do something like that with a feature every month
 
 
 ### Mentorship fair
