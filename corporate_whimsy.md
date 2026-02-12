@@ -12,6 +12,7 @@ Concepts to play with
 
 ### Hot Ones -esque leadership interview
 - Have leaders doing something with host while panel
+- A craft, afternoon tea, maybe one of those kids craft kits, doodling, while playing video game, sampling themed food
 
 
 ### Primp my work bag/space/computer
