@@ -34,6 +34,16 @@ Concepts to play with
 - book club but with videos curated into theme/series
 - built in learning
 
+### Speednetworking while crafting
+- Like valentine's day event Gamut Gallery put on early 2020s
+
+### Writer's workshop
+- could do with anything you want extra input on: reviews, pitch deck, body of work
+- Make something not fun, fun
+
+### Themed
+- events, dress up
+- Fancy little debbie day
 
 ### Book fair
 - Why this book changed my life lightning talk
