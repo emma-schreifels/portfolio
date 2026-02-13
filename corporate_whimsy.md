@@ -1,5 +1,6 @@
 # Corporate whimsy
 How do we make the 9-5 enjoyable, whimsical, and rejuvenating to foster engagement, connection, and joy?
+_more ✨pizzaz✨ - less 🍕pizza🍕_
 
 ## Brainstorming
 Concepts to play with 
