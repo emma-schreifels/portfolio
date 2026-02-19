@@ -27,7 +27,8 @@ Concepts to play with
 
 ### Mentorship fair
 - Submit 1 slide GTKY, inlcude if open for mentorship or looking for mentorship
-- put up on screens on boards to walk by
+- put up on screens on boards to walk by, could actually do magnets on boards of printed off to be more like GTKY Gallery
+- If gallery theme, have like an art gallery where templates have art snippets on borders and people can select
 - enable connections
 - music, cookies
 - name 10 people for entering some prize
