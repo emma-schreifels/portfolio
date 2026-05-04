@@ -50,7 +50,7 @@ semi unstructured musings on creating a powerful and impactful learning culture 
 - How can we curate from other learning programs at other companies that champion certain portions of the culture vision we have? Grab only what pushes our vision forward
 
 ## Catchphrases?
-- Learning woven in (textiles reference)
+- Learning woven in, looped in learning, learning looped in (textiles reference)
 - Development atmostphere (space)
 - Learning mindset
 - Learning 360 degrees
