@@ -22,14 +22,20 @@ semi unstructured musings on creating a powerful and impactful learning culture 
 - Re: book fair?
 - Mentorship fair, including pledge booth with high profile people with raffles on 1:1 coffee chat on different subjects/topics
 - Customized recognition cards focused on learning, partner with designers
+- Playbooks and placemats for maximizing impact, workshop prep materials, shareout slide templates
+- User testing / DIY resources to learn more through data and connections
+- Learning playlists from high profile people
+- On-site library stocked with books for analog learning, could have more appetite to do
+- Actual magazine for around campus, focus on learning or curation of topical insights
 
 
 ## Further reflection
 - What problem are we trying to solve? As a company? What about as individual learners? Where is the overlap?
 - What is great about current learning culture? How can we continue to nurture that?
 - How far are we from ideal state? Are certain dimensions further away than others?
-- How does this relate to other culture initiatives like engagement/involvement, job satisfaction, retention, recognition, etc.?
+- How does this relate to other culture initiatives like engagement/involvement, job satisfaction, retention, recognition, AI/tech tooling, etc.?
 - How can we add in fun? Novelty? Whimsy?
+- This also depends on ability to feel comfortable talking about good AND bad outcomes of experiments, we learn from both
 - How do we promote learning in short and long term? moment vs movement
 - How can we encourage learning with a vision? Balance with learning by following passion?
 - How can we increase positive modeling of learning? leaders? examples?
@@ -48,3 +54,5 @@ semi unstructured musings on creating a powerful and impactful learning culture 
 - Development atmostphere (space)
 - Learning mindset
 - Learning 360 degrees
+- Led by learning
+- 
